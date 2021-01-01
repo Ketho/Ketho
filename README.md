@@ -1,0 +1,1 @@
+![](https://github.com/ketho/ketho/blob/master/yaorenwo20090506.jpg)
